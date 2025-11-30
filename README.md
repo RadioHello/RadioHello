@@ -7,4 +7,4 @@
 
  ![image_alt](https://github.com/RadioHello/Me-n-Daisuke-are-literally-canon-what/blob/main/47cd9d19c4aa84921902c24821977a55_002.jpg?raw=true)
 
-[phttps://64.media.tumblr.com/e8b7532426ae00fa981f50b40021122a/7e2c36d6ecc72189-3d/s640x960/63111144fb4cbbca6be90dad815209f55956a11d.gifv]
+
