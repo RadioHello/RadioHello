@@ -10,6 +10,8 @@ ME, HUNTER N DAISUKE ARE LITERALLY CANON (drawn by me)
 
 ![image_alt](https://github.com/RadioHello/Me-n-Daisuke-are-literally-canon-what/blob/main/47cd9d19c4aa84921902c24821977a55_002.jpg?raw=true)
 
+![image_alt](https://github.com/RadioHello/RadioHello/blob/main/353365d260965567067cafb884f989ac_002.jpg)
+
 ![tumblr_e8b7532426ae00fa981f50b40021122a_63111144_640](https://github.com/user-attachments/assets/092ad4f5-dd5f-46e9-af67-2187c1bafd93)
 
 
@@ -17,4 +19,3 @@ ME, HUNTER N DAISUKE ARE LITERALLY CANON (drawn by me)
 
 
 ![tumblr_e64a5de1c3b70903e36b2011aba20227_b590c1bf_500](https://github.com/user-attachments/assets/d9bfe78a-46b0-42f7-bfff-28c99da975df)
-
