@@ -6,7 +6,7 @@
 
 ![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
 
-ME, HUNTER N DAISUKE ARE LITERALLY CANON (drawn by me)
+ME, HUNTER, SIMON N DAISUKE ARE LITERALLY CANON (drawn by me)
 
 ![image_alt](https://github.com/RadioHello/Me-n-Daisuke-are-literally-canon-what/blob/main/47cd9d19c4aa84921902c24821977a55_002.jpg?raw=true)
 
