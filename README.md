@@ -7,11 +7,11 @@
 
 ![tumblr_06dbce81e4d8e3287c056581fa0f1cba_f01d817b_500](https://github.com/user-attachments/assets/3585ecbc-00d5-41e5-a13d-fc96db5cf5a9)
 
-ME HUNTER N DAISUKE ARE LITERALLY CANON (drawn by me)
+I LOVE THIS LITTLE INCEL GOONER FREAK (drawn by me, credits to the oc creator)
 
-![image_alt](https://github.com/RadioHello/Me-n-Daisuke-are-literally-canon-what/blob/main/47cd9d19c4aa84921902c24821977a55_002.jpg?raw=true)
+![image_alt](https://raw.githubusercontent.com/RadioHello/cuddly/803b6fdd29f7f8bfecb769df7c3b8368ca741856/1000002897.jpg)
 
-![image_alt](https://github.com/RadioHello/RadioHello/blob/main/353365d260965567067cafb884f989ac_002.jpg)
+![image_alt](https://raw.githubusercontent.com/RadioHello/cuddly/803b6fdd29f7f8bfecb769df7c3b8368ca741856/unnamed.jpg)
 
 ![tumblr_e8b7532426ae00fa981f50b40021122a_63111144_640](https://github.com/user-attachments/assets/092ad4f5-dd5f-46e9-af67-2187c1bafd93)
 
