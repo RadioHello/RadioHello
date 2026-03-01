@@ -1,5 +1,7 @@
 𝙳𝚘 𝙽𝙾𝚃 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜, 𝚒𝚏 𝚒 𝚜𝚎𝚎 𝚢𝚘𝚞 𝚍𝚘𝚒𝚗𝚐 𝚝𝚑𝚒𝚜 𝚊𝚗𝚢𝚠𝚊𝚢 𝚒'𝚕𝚕 𝚙𝚛𝚘𝚋𝚊𝚋𝚕𝚢 𝚌𝚘𝚗𝚏𝚛𝚘𝚗𝚝 𝚢𝚘𝚞 𝚊𝚋𝚘𝚞𝚝 𝚝𝚑𝚒𝚜. taking inspo is fine though.
 
+(っ◔◡◔)っ ♥ I also do cosplays, check out my tiktok!! @peaceintheunknown ♥​
+
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=913636">
   </a>
