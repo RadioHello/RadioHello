@@ -10,7 +10,7 @@ yumeship art by me hehe​
 </p>
 
 【﻿ＢＡＳＩＣ　ＤＮＩ】
-● 𝗢𝗯𝘀𝗲𝘀𝘀𝗶𝘃𝗲 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝗺𝘆 𝗱𝗼𝘂𝗯𝗹𝗲𝘀 𝗮𝗿𝗲 𝗳𝗶𝗻𝗲.
+● angelo dalton, daisuke juarez and sebastian de smith tomato chicken legs doubles KINDLY dni pls! :D.
 ● making dirty jokes very often when we arent friends.
 ● 𝗣𝗲𝗱0𝗽𝗵𝗶𝗹𝗲, 𝗦3𝘅𝘂𝗮𝗹𝗶𝘇𝗲𝘀 𝗠𝗶𝗻𝗼𝗿𝘀, 𝗝𝗼𝗸𝗲𝘀 𝗔𝗯𝗼𝘂𝘁 𝗥×𝗽𝗲, 𝗲𝘁𝗰.
 ● 𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦 𝗜 𝗥𝗘𝗣𝗘𝗔𝗧 𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦.
